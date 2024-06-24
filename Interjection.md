@@ -1,0 +1,1 @@
+Same as [[Preposition]], nothing special to talk about here, just vocabulary.
